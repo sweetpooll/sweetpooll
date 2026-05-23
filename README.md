@@ -6,7 +6,7 @@
 
 live LIFE as you please <br> making it your own depends on you <br> don't waste time hiding it<br> do what's on your MIND more proudly than anyone
 
-sign my [atabook!](https://youjisakiyama.atabook.org) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/blue2.gif) read my [rentry](https://rentry.co/paratised)
+sign my [atabook!](https://youjisakiyama.atabook.org) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/blue2.gif) read my [rentry](https://rentry.co/paratised) <br> hi heres my [notepin](https://haru.notepin.co) where i might write absolute peak 
 
 </div>
 

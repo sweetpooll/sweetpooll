@@ -1,12 +1,12 @@
 <div align="center">
 
+$\color{Cyan}{\textbf{hinako mukuhara's biggest fan}}$ ![](https://pixelsafari.neocities.org/favicon/food/produce/apple.gif)
 
-![](https://64.media.tumblr.com/4c789723f4aca44121744a4f4c13851a/9306668590db87f4-d1/s250x400/f7c13a443d9cdb0ed1f53750d44a85926c3eea82.gif)
+![](https://64.media.tumblr.com/f304aba47b4a237a8b0dcb8d9930067b/1b3f1f53f169b5ae-c0/s500x750/1c6d8b52aba810ef3113911c533d7eef8002d626.gif)
 
-by that fair-skinned girl that summer erased <br> i want to be possessed so badly it hurts
+$\color{Cyan}{\textbf{i wanted to be loved,just like a cat}}$<br>$\color{Cyan}{\textbf{maybe act capricious, on my word and at my fancy}}$
 
-
-sign my [atabook!](https://youjisakiyama.atabook.org) ![](https://pixelsafari.neocities.org/favicon/symbol/heart/blue2.gif) read my [rentry](https://rentry.co/paratised) <br> hi heres my [notepin](https://haru.notepin.co) where i might write absolute peak 
+$\color{Cyan}{\textbf{ANTIHARASSMENT - }}$ [atabook](https://youjisakiyama.atabook.org) [notepin](https://haru.notepin.co) [rentry](https://rentry.co/paratised)
 
 </div>
 

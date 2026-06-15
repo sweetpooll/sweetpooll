@@ -12,7 +12,7 @@ links - [atabook](https://youjisakiyama.atabook.org) [notepin](https://haru.note
   <summary>${\textsf{\color{#7BA0C4}more about me}}$
 </summary>
   ${\textsf{\color{#acb5be}ESFP 3w2 sp/so , pro antihara }}$<br> 
-  ${\textsf{\color{#acb5be} korean canadian - bi & unlabelled , masc terms pref}}$<br>
+  ${\textsf{\color{#acb5be} korean canadian - bi and unlabelled , masc terms pref}}$<br>
    ${\textsf{\color{#acb5be} massive evol since day 1 i love xlov wahh (wumuti bias) }}$<br>
    ${\textsf{\color{#acb5be}no dni dont be weird -- block me if you want }}$<br>
 </details> 

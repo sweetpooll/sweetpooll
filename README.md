@@ -1,19 +1,19 @@
 <div align="center">
 
-${\textsf{\color{#7BA0C4} monopoisoner - deco*27 }}$<br>  ![](https://pixelsafari.neocities.org/favicon/animals/mantaray.gif)
+${\textsf{\color{#d56464} i am a chud who pines over men }}$<br>  ![](https://pixelsafari.neocities.org/favicon/animals/mantaray.gif)
 
-![](https://64.media.tumblr.com/b29278b4449011a0fbcc3d55c56eb31c/14a1eba7ab6e13e4-6d/s540x810/43a3eacd80e3b66ffa76bb7b81d3315496df12b8.gif)
+![](https://64.media.tumblr.com/089a7232ada3425e1a592c802ffc0912/677b1568da1ff901-26/s400x600/bee4d2afba5ee82582301a153863593830d1376c.gif)
 
 
-${\textsf{\color{#7BA0C4} " she belongs completely, entirely to me !!"}}$<br> ${\textsf{\color{#7BA0C4}  kissing, sleeping together, everything beyond that too }}$
+${\textsf{\color{#d56464} so i can hold your hand for the first time,}}$<br> ${\textsf{\color{#d56464} anticipate calling you mine ? }}$
 
-links - [atabook](https://youjisakiyama.atabook.org) [rentry](https://rentry.co/paratised)
+links - [atabook](https://youjisakiyama.atabook.org) remaking rentry..
 <details>
-  <summary>${\textsf{\color{#7BA0C4}more about me}}$
+  <summary>${\textsf{\color{#d56464}more about me}}$
 </summary>
   ${\textsf{\color{#acb5be}ESFP 3w2 sp/so , pro antihara }}$<br> 
   ${\textsf{\color{#acb5be} korean canadian - bi and unlabelled , masc terms pref}}$<br>
-   ${\textsf{\color{#acb5be} massive evol since day 1 i love xlov wahh (wumuti bias) }}$<br>
+   ${\textsf{\color{#acb5be} currently very into (16/6/25) - milgram , n+c specifically sweet pool + tnc, zeno remake + daily life, saihate station , your turn to die, charisma house, alien stage, ensemble stars, project sekai and lots more still}}$<br>
    ${\textsf{\color{#acb5be}no dni dont be weird -- block me if you want! ! i do not gaf }}$<br>
 </details> 
 

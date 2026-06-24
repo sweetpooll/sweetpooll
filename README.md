@@ -1,13 +1,13 @@
 <div align="center">
 
-${\textsf{\color{#d56464} i am a chud who pines over men }}$<br>  ![](https://pixelsafari.neocities.org/favicon/animals/mantaray.gif)
+ ![](https://pixelsafari.neocities.org/favicon/animals/mantaray.gif)
 
 ![](https://64.media.tumblr.com/089a7232ada3425e1a592c802ffc0912/677b1568da1ff901-26/s400x600/bee4d2afba5ee82582301a153863593830d1376c.gif)
 
 
 ${\textsf{\color{#d56464} so i can hold your hand for the first time,}}$<br> ${\textsf{\color{#d56464} anticipate calling you mine ? }}$
 
-links - [atabook](https://youjisakiyama.atabook.org) remaking rentry..
+links - [atabook](https://youjisakiyama.atabook.org) [info rentry](https://rentry.co/j09hn)
 <details>
   <summary>${\textsf{\color{#d56464}more about me}}$
 </summary>

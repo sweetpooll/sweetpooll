@@ -1,23 +1,12 @@
 <div align="center">
 
- ![](https://pixelsafari.neocities.org/favicon/animals/mantaray.gif)
+${\textsf{\color{#99ce48} to be}}$ ${\textsf{\color{#9bff00} human,}}$ ${\textsf{\color{#99ce48} after all}}$
 
-![](https://64.media.tumblr.com/089a7232ada3425e1a592c802ffc0912/677b1568da1ff901-26/s400x600/bee4d2afba5ee82582301a153863593830d1376c.gif)
+![](https://64.media.tumblr.com/ed3186fb6a3f7b232ea1bc8b25ca3d9c/440450af7211a0ef-d4/s500x750/3d41faa9cfdc75cf861f4718e1168fce21cfcab3.gif)
 
+[**rentry**](https://rentry.co/j09hn) [**atabook**](https://youjisakiyama.atabook.org) [**prns.cc**](https://pronouns.cc/@wiege)
 
-${\textsf{\color{#d56464} so i can hold your hand for the first time,}}$<br> ${\textsf{\color{#d56464} anticipate calling you mine ? }}$
-
-links - [atabook](https://youjisakiyama.atabook.org) [info rentry](https://rentry.co/j09hn)
-<details>
-  <summary>${\textsf{\color{#d56464}more about me}}$
-</summary>
-  ${\textsf{\color{#acb5be}ESFP 3w2 sp/so , pro antihara }}$<br> 
-  ${\textsf{\color{#acb5be} korean canadian - bi and unlabelled , masc terms pref}}$<br>
-   ${\textsf{\color{#acb5be} currently very into (16/6/25) - milgram , n+c specifically sweet pool + tnc, zeno remake + daily life, saihate station , your turn to die, charisma house, alien stage, ensemble stars, project sekai and lots more still}}$<br>
-   ${\textsf{\color{#acb5be}no dni dont be weird -- block me if you want! ! i do not gaf }}$<br>
-</details> 
-
- 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317r4kqgesxsl34pebram7sthrry&cover_image=true&theme=novatorem&show_offline=false&background_color=31ed12&interchange=false&profanity=false&hide_remaster=false&bar_color=6cd44f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 </div>
 

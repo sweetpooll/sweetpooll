@@ -6,6 +6,8 @@ ${\textsf{\color{#9d1313} to be}}$ ${\textsf{\color{#ff1919} human,}}$ ${\textsf
 
 [**rentry**](https://rentry.co/j09hn) [**atabook**](https://youjisakiyama.atabook.org) [**prns.cc**](https://pronouns.cc/@wiege)
 
+hey (#self promo) [this](https://archiveofourown.org/works/87617111) is my up and coming hopefully 12-14 chapter mikofuu fic, if you like milgram give it a read! i take any criticism or ideas :)
+
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=317r4kqgesxsl34pebram7sthrry&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff1507&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
